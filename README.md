@@ -1,2 +1,2 @@
 # mano-jesus
-mano jesus
+mano jesu
